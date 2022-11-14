@@ -9,7 +9,7 @@
 
 - 📫 voor contact kan u e-mailen **171171@novacollege.nl**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
